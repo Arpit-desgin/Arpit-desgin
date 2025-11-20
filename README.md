@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Arpit Bhardwaj
 
-🎓 First-year B.Tech CSE Student | 💻 Passionate Developer
+🎓 Second-year B.Tech CSE Student | 💻 Passionate Developer
 
 ---
 
